@@ -1,3 +1,4 @@
 Sasha Grey
-Rita Cadillac
+Rita Cadillac velha
 Angelina Jolie
+Cristiano Ronaldo
